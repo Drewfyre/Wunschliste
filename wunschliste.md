@@ -1,0 +1,16 @@
+# Wunschliste
+- [Mikrofon Shure MV7X inkl. Focusrite Scarlett Solo](https://amzn.eu/d/6dgv8qJ)
+- [Razer DeathAdder V3 Pro](https://amzn.eu/d/fZKRHwb)
+- [Nordwolle Rif, Farbe egal](https://nordwolle.com/herren/verao/rif)
+- [Nordwolle Tejo, Farbe egal](https://nordwolle.com/herren/verao/tejo)
+- Steam Gutschein
+- [Drop Dead, The Haunted Man, S](https://dropdead.world/collections/shop/products/the-haunted-man?variant=41626646642735)
+- [Drop Dead, Faye, S](https://dropdead.world/collections/shop/products/faye?variant=41601193410607)
+- [Drop Dead, Pull The Plug, S](https://dropdead.world/collections/shop/products/pull-the-plug?variant=41601182629935)
+- [Drop Dead, Going To Hell, S](https://dropdead.world/collections/shop/products/going-to-hell?variant=41575796342831)
+- [Drop Dead, Mankind, S](https://dropdead.world/collections/shop/products/mankind?variant=41570443198511)
+- [Aries Athletics Midletts](https://www.ariesathletics.de/produkt/midletts/)
+- [Tesla Sonnenschutz](https://www.shop4tesla.com/collections/tesla-model-y/products/sonnenschutz-sonnenblenden-model-y)
+- [Tesla Organizer Box](https://www.shop4tesla.com/collections/tesla-model-y/products/organiser-box-mittelkonsole-tesla-model-3-y)
+- [Tesla Getraenkehaltereinsatz](https://www.shop4tesla.com/collections/tesla-model-y/products/getrankehalter-tesla-model-3-y)
+- [Tesla Gurtschneider](https://www.shop4tesla.com/collections/tesla-model-y/products/resqme-rettungswerkzeug)
