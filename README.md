@@ -3,7 +3,6 @@
 - [Razer DeathAdder V3 Pro](https://amzn.eu/d/fZKRHwb)
 - [Nordwolle Rif, Farbe egal, S](https://nordwolle.com/herren/verao/rif)
 - [Nordwolle Tejo, Farbe egal, S](https://nordwolle.com/herren/verao/tejo)
-- [OTK Jogginghose, XS](https://otknetwork.com/collections/all/products/otk-jogger-black)
 - Steam Gutschein
 - [Drop Dead, The Haunted Man, S](https://dropdead.world/collections/shop/products/the-haunted-man?variant=41626646642735)
 - [Drop Dead, Faye, S](https://dropdead.world/collections/shop/products/faye?variant=41601193410607)
